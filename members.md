@@ -1,4 +1,4 @@
 Member
 
 藤谷知季(FujitaniTomoki)
-宮下拓視(TakumiMiIYASHITA)
+宮下拓視(TakumiMIYASHITA)
