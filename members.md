@@ -2,6 +2,8 @@ Member
 
 藤谷知季(FujitaniTomoki)
 
-宮下拓視(TakumiMiIYASHITA)
+松下朋弘(MatsushitaTomoiro)
 
-藤田　天斗(Fujita Takato)
+宮下拓視(TakumiMIYASHITA)
+
+藤田天斗(FujitaTakato)
